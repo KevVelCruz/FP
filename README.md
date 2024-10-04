@@ -19,4 +19,4 @@
 _textto italica_
 ***negritas italica***
 
-![disosito](https://scontent.fmex36-1.fna.fbcdn.net/v/t39.30808-6/443821758_376735518724722_2801106083849748222_n.jpg?_nc_cat=106&ccb=1-7&_nc_sid=6ee11a&_nc_ohc=SGMDVh5JtasQ7kNvgE7DGxF&_nc_ht=scontent.fmex36-1.fna&_nc_gid=AWJOYOuY9ekCldLcKCZ5vkZ&oh=00_AYBPCupFAtMVbxHyobdiayJ06rjRBnyPAOcjsgl5yDT6gQ&oe=6704F9DD)
+![disosito](https://images.squarespace-cdn.com/content/v1/659d79bfcbafbe5e3269d464/84e5cba5-e324-40a8-917b-d08580e6153c/Chris_bumstead_cbum_historia-2.jpg?format=2500w)
