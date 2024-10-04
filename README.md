@@ -19,4 +19,4 @@
 _textto italica_
 ***negritas italica***
 
-![disosito](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.redbubble.com%2Fes%2Fi%2Fposter%2FCbum-Lat-Spread-de-Cbumers%2F104716903.LVTDI&psig=AOvVaw28e5VDYPJMv33p6H6H4DzQ&ust=1728088372083000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCIDjlOS884gDFQAAAAAdAAAAABAc)
+![disosito](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.redbubble.com%2Fes%2Fi%2Fposter%2FCbum-Lat-Spread-de-Cbumers%2F104716903.LVTDI&psig=AOvVaw28e5VDYPJMv33p6H6H4DzQ&ust=1728088372083000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCIDjlOS884gDFQAAAAAdAAAAABA6)
